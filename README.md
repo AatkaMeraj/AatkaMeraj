@@ -29,8 +29,8 @@ Any innovative ideas where data can make a difference!
 📫 How to reach me:
 
 📧 Email: aatkameraj1425@gmail.com
-🌐 LinkedIn: (https://www.linkedin.com/in/aatkameraj)
-💻 Portfolio: aatkameraj.github.io
+🌐 LinkedIn: https://www.linkedin.com/in/aatkameraj
+
 
 
 
